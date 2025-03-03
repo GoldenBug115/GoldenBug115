@@ -1,4 +1,4 @@
-## Hi there 👋 mayichao82815
+## Hi there 👋
 
 
 **mayichao82815/mayichao82815** is a ✨ _special_ ✨ repository
